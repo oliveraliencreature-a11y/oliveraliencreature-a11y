@@ -2,7 +2,7 @@
 “𝓨𝓸𝓾 𝓬𝓸𝓾𝓵𝓭 𝓪𝓵𝔀𝓪𝔂𝓼 𝓹𝓪𝓲𝓷𝓽 𝓽𝓱𝓮 𝓻𝓸𝓼𝓮𝓼 𝓻𝓮𝓭…”
 <img width="1172" height="462" alt="image" src="https://github.com/user-attachments/assets/577c660c-1fb0-4bc3-9e05-dfb3ac167544" />
 
-[𝔸𝕥𝕒𝕓𝕠𝕠𝕜!](https://olivers.atabook.org)
+[𝔸𝕥𝕒𝕓𝕠𝕠𝕜!](https://olivers.atabook.org)||[𝕊𝕥𝕣𝕒𝕨 𝕡𝕒𝕘𝕖!](https://oliverriddle.straw.page)||
 
 𝕥𝕙𝕚𝕤 𝕚𝕤 𝔼𝕍𝔼ℝ𝕐𝕋ℍ𝕀ℕ𝔾 𝕪𝕠𝕦 𝕟𝕖𝕖𝕕 𝕥𝕠 𝕜𝕟𝕠𝕨 𝕒𝕓𝕠𝕦𝕥 𝕞𝕖  ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘ ℍ𝕖𝕝𝕝𝕠! 𝕄𝕪 𝕟𝕒𝕞𝕖 𝕚𝕤 𝕆𝕝𝕚𝕧𝕖𝕣 𝕓𝕦𝕥 𝕪𝕠𝕦 𝕔𝕒𝕟 𝕔𝕒𝕝𝕝 𝕞𝕖 𝕣𝕚𝕕𝕕𝕝𝕖 𝕀 𝕒𝕞 𝕒 𝕞𝕚𝕟𝕠𝕣 𝕤𝕠 𝕒𝕔𝕥 𝕒𝕡𝕡𝕣𝕠𝕡𝕣𝕚𝕒𝕥𝕖𝕝𝕪, 𝕒𝕟𝕕 𝕥𝕙𝕚𝕤 𝕚𝕤 𝕞𝕪 𝕣𝕖𝕒𝕕 𝕞𝕖 𝕤𝕠 𝕨𝕖𝕝𝕔𝕠𝕞𝕖!  
 
